@@ -1,0 +1,1 @@
+For mobile numbers in some countries, you can also find out information about which carrier originally owned a phone number.
